@@ -1,1 +1,1 @@
-"capstone Project Kelompok 40"
+CAPSTONE PROJECT KELOMPOK 40
